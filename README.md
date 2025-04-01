@@ -1,1 +1,1 @@
-# Kh-a-Thu-t-To-n
+# Khoa Thuat Toan
